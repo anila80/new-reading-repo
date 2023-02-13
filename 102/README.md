@@ -12,10 +12,14 @@ My name is **Anila Khan** and I am very excited to be on the new journey of my l
  1.	NO PAIN NO GAIN
  2.	If someone else can do this, WHY CAN'T I. I just need some more effort to accomplish!!! 🥇
  3.	How to improve my areas where I’m less proud of?
+
  <br>
+
 <img src= "https://i2.wp.com/mrschurch.net/wp-content/uploads/2018/02/GrowthMindsetPoster.jpg" width=50% heitht=50%>
 
+
 # My Reading Notes
+
 
 ## Table of Contents
 
