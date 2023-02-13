@@ -1,3 +1,3 @@
 # new-reading-repo
 
-1. [Learning Markdown](/new-reading-repo/102/)
+1. [Table of Contents](/new-reading-repo/102/)
